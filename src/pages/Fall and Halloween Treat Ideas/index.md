@@ -20,7 +20,6 @@ Another great option is **trail mix**. Get a variety of items beforehand (avoidi
 ![trail mix Halloween](./halloweenHands.jpg)
 
 An idea I’ve used a couple of times is a **themed pudding cup**. That would be “Ghost in the graveyard” for Halloween and “Pumpkin Patch” or “Dirt and Worms” for either Fall or Halloween themes. The “dirt” is crumbled oreos, which you can purchase already crumbled in a box in your grocery store baking aisle. You don’t have to spend time crumbling them up at the party! Side note - I once saw a mom take a hammer to a package of oreos at a party. Yeah, it got the job done, but the pre crumbled ones still have my vote! This is another good option if you’re avoiding nuts. You can also avoid gluten by not sprinkling the oreo topping.
-Speaking of oreos... Those little fellas are delicious as well as versatile. Glutino is a brand to try for a gluten free option - they even have double stuffed!! You could do an oreo/trail mix bar where you have ingredients for a build your own spider or turkey treat. In my experience, kids have a lot of fun when they get a little hands on with their snack. As long as it doesn’t take too long - we’ve got to get to those games!
 
 ![pudding cups](./puddingGhostCups.jpg)
 
@@ -28,12 +27,21 @@ Speaking of oreos... Those little fellas are delicious as well as versatile. Glu
 
 ![pudding cups 3](./desertDirtWorms.jpg)
 
+Speaking of **oreos**... Those little fellas are delicious as well as versatile. Glutino is a brand to try for a gluten free option - they even have double stuffed!! You could do an oreo/trail mix bar where you have ingredients for a build your own spider or turkey treat. In my experience, kids have a lot of fun when they get a little hands on with their snack. As long as it doesn’t take too long - we’ve got to get to those games!
+
+![spider oreo](./spiderOreo.jpg)
+
+![turkey oreo](./oreoTurkeys.png)
+
 Another possibility in this same vein is to purchase **prepackaged cupcakes and have the kids do some decorating**. Here are cute turkey and owl versions.
-One year, a student’s dad came in and whipped these up. They were really easy and looked awesome!
 
 ![turkey cupcake](./diyTurkeyCupcake1.jpg)
 
 ![owl cupcake](./owl-cupcakes.jpg)
+
+One year, a student’s dad came in and whipped these up. They were really easy and looked awesome!
+
+![Halloween donuts](./halloweenDonuts.jpg)
 
 Here’s another idea you could do using chocolate iced donuts.
 
@@ -42,6 +50,8 @@ Here’s another idea you could do using chocolate iced donuts.
 One more idea that I may look into this year - a themed **ice cream cake from Baskin Robbins**. It costs more than the other options here, but can you imagine this ice cream turkey in person?? Your class’s own little turkey feast! (This is not a paid endorsement for Baskin Robbins. It was just something I saw and was delighted by!) They also have monsters and pumpkins for Halloween.
 
 ![turkey ice cream](./turkeyCake.png)
+
+![harvest ice cream](./harvestCake.png)
 
 Also, if you want to get REALLY simple with your treats, I have to say that my own kids have never been happier than when someone has brought in **Little Debbie Cosmic Brownies**.
 And, that’s my list of top and simple treats for your next Fall or Halloween party! There’s a million wonderful ideas out there, so I wanted to bring focus to some good, easy options. Since schools are getting more restrictive in what can be brought in, I highlighted treats that can be put together in the classroom in a very short amount of time. That leads right into my...
